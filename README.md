@@ -1,0 +1,2 @@
+# exercicio
+síntese granular
